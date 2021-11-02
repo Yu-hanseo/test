@@ -6,6 +6,5 @@
 #### 안녕하세요.
 ##### 안녕하세요.
 ###### 안녕하세요.
-![고양이애옹](https://cdn.pixabay.com/photo/2019/03/13/08/29/cat-4052454_1280.jpg)
-![image](https://user-images.githubusercontent.com/90608707/139829415-b1201031-b58e-4f79-aa11-b01627354fef.png)
 
+[카리나](https://search.naver.com/search.naver?sm=tab_hty.top&where=image&query=%EC%97%90%EC%8A%A4%ED%8C%8C&oquery=%EB%A7%88%ED%81%AC%EB%8B%A4%EC%9A%B4+%EC%9D%B4%EB%AF%B8%EC%A7%80&tqi=hhZeRwprvh8sslPt7i8ssssstIZ-428977#)
